@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Currently 3rd year student at Chandigarh University.<br>🌱 I’m currently Exploring My Coding Skills .<br>🤔 Preparing for interviews and improving my DSA skills.<br>📫 My cp profiles: https://linktr.ee/challaridurgaprasad<br>😄 Pronouns: He/His<br>⚡ Other activities: playing cricket, kabbadi, football.
+🔭 I’m Currently 3rd year student at Chandigarh University.<br>🌱 I’m currently Exploring My Coding Skills .<br>🤔 Preparing for interviews and improving my DSA skills.<br>📫 My cp profiles: [https://linktr.ee/challaridurgaprasad](https://linktr.ee/challaridurgaprasad?utm_source=linktree_profile_share&ltsid=faaad8a7-7706-43a3-9e2b-79646ac5d755)<br>😄 Pronouns: He/His<br>⚡ Other activities: playing cricket, kabbadi, football.
 
 
 ## 🌐 Socials:
